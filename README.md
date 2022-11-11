@@ -1,2 +1,0 @@
-# disctest
-TUA MAMMA XD
